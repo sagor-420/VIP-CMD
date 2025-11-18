@@ -1,3 +1,6 @@
+#ফাইল নিবা চোর পতিতার পোলা
+#নিতে না পরলে তোর মাইরে তুই
+#চুদবি আজকে রাতে ফকিন্নির পোলা
 # Obfuscated with PyObfuscate
 # https://www.github.com/htr-tech
 # Time : Tue Nov 18 18:04:07 2025
